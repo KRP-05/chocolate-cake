@@ -4,3 +4,4 @@ Sift together flour, cocoa, baking powder, baking soda and salt into a large bow
 Pour boiling water into batter, mixing well. Cake batter is thin in consistency.
 Pour batter into cake pans and bake for 30-35 minutes or until a wooden skewer inserted into the centre comes out clean.
 Let cool for 10 minutes, then turn out onto wire racks to cool completely
+then your cake is ready
